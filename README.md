@@ -1,4 +1,4 @@
-# catgpt-os
+Pounce
 
 ![Screenshot_20240926_055543](https://github.com/user-attachments/assets/59332ed7-6124-4cb0-b498-73239a213a09)
 

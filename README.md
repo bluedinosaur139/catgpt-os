@@ -1,6 +1,9 @@
 Pounce
+![Screenshot_20241012_103548](https://github.com/user-attachments/assets/244a6b56-718b-494a-97ed-1198bfdc4891)
+![Screenshot_20241012_103806](https://github.com/user-attachments/assets/05272b1d-3e2d-4397-b50b-8cfb6b8dc426)
+![Screenshot_20241012_103052](https://github.com/user-attachments/assets/d3cb1bde-b8ef-452b-8075-3b7f035c7183)
 
-![Screenshot_20240926_055543](https://github.com/user-attachments/assets/59332ed7-6124-4cb0-b498-73239a213a09)
+
 
 Aww, nya~! Hi there, everyone! 🐾✨ Welcome to CatGPT, the most purrfectly playful OS you could ever dream of! 🐱💕 With CatGPT, you’ll have everything you need right at your paws, from games to creative apps like GIMP, all wrapped up in the most kawaii (and functional!) anime catgirl theme ever! 🎮🎨
 

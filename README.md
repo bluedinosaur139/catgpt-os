@@ -5,11 +5,15 @@ Brought to you by: Zombie Fart Studios
 
 
 
-Pounce
+Pounce: Unleashing Gaming Freedom
+"No corporate nonsense, just pure power and style."
 
 
 
-Lean, Clean, Focused. "Form and function, God I love my job!"
+Ready to make every other OS feel like a mini-boss.
+
+
+
 ![Screenshot_20241012_103548](https://github.com/user-attachments/assets/244a6b56-718b-494a-97ed-1198bfdc4891)
 ![Screenshot_20241012_103806](https://github.com/user-attachments/assets/05272b1d-3e2d-4397-b50b-8cfb6b8dc426)
 ![Screenshot_20241012_103052](https://github.com/user-attachments/assets/d3cb1bde-b8ef-452b-8075-3b7f035c7183)
